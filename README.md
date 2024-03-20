@@ -10,6 +10,7 @@
 - 📫 How to reach me **muhammad.edtech@gmail.com**
 
 - 📄 Know about my experiences [https://bold.pro/my/muhammad-ali-awan](https://bold.pro/my/muhammad-ali-awan)
+- [Upwork Profile](https://www.upwork.com/freelancers/muhammadali2636)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
